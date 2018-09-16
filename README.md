@@ -1,4 +1,4 @@
-# K10-2017-m250f-
+# K10 2017 m250f
 Also known as LG K10 2017 Single-Sim, LG-M250F, LGM250F
 
 The LG K10 2017 16GB M250F is a good Android phone with 1.5Ghz Octa-Core processor that allows games and heavy applications to run.
